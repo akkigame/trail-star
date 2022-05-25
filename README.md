@@ -1,1 +1,5 @@
 # trail-star
+
+#BATTLE
+
+#ADVENTURE
